@@ -1,2 +1,2 @@
 # Certificates
-Hello, here I am presenting my certificates based on completion of specific topics.
+Hello, here I want to share my Certificates earned by me.
